@@ -1,2 +1,2 @@
-# theParadoxicalWizard.github.io
+# fluctix.github.io
 Sagnik's Website
